@@ -4,3 +4,5 @@ I guess I just put some achievements and stuff here as this is a bio and you nee
 I’m interested in maths(algebra, geometry, number theory, counting & probability and precalculus) and programming(python, javascript, html & css, c#) and science(physics, rocket science, chemistry, QUANTUM PHYSICS).
 Also, I do do UK maths competitions and olympiads.
 And I do programming in Python, Web pages and Unity c#
+
+bruh
