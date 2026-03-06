@@ -6,3 +6,5 @@ Also, I do do UK maths competitions and olympiads.
 And I do programming in Python, Web pages and Unity c#
 
 btw myy minecraft username is @bwadelyyyy
+
+also if i see u in minecraft ima kill u
